@@ -1,1 +1,1 @@
-# scottie-w.github.io
+# scottie
